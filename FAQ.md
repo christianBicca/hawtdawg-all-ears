@@ -5,3 +5,5 @@ Open the Hawt Dawg app and click on "Edit Profile."
 Scroll down to the selection called "Passions" and tell potential mates and friends all about the treats and toys that make you tail wag.
 
 When you're done, click "Save Changes" to show the world.
+
+In the meantime, why not meet up at the dog park to get a whiff of your new friend?
